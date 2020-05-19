@@ -1,0 +1,2 @@
+# Edu-D.O.T.S.
+Edu-D.O.T.S. (Diverse, Operating, Training, System) was created to support educators to stay and thrive in the Very Important Profession of teaching by providing professional learning for the many ways educators learn.  Online, in-person, collaborating, coaching, and mentoring are a few proven methods educators use to improve their practice.  Edu-D.O.T.S. allows educators to experience a meaningful personalized learning path based on research based best practices by making learning personal.
